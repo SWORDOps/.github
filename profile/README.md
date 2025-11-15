@@ -2,7 +2,7 @@
 
 **Independent private intelligence firm specializing in Web3 and cyber threats.**
 
-> Adversaries don’t play fair. Neither do we — the law’s on our side.
+> Adversaries don’t play fair. Neither do we — the law’s on our side and blue always wins.
 
 ---
 
